@@ -1,4 +1,4 @@
-# Bolgnese
+# Bolognese
 
 ## Ingredients
 

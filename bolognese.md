@@ -21,7 +21,7 @@
 * Dice onion, garlic, carrots, and celery (or put in food processor)
 * Fry meat lightly in olive oil
 * Add diced vegetables and fry lightly
-* Add bay leaves
+* Add bay leaves and cloves
 * Add red wine and broth alternating and wait until reduced (each time)
 * Add half of blended tomatoes and reduce a bit
 * Add other half of blended tomatoes
